@@ -13,6 +13,6 @@ I'm also interested in learning about:
 * Machine learning
 * Natural language processing
 
-If you have any questions or want to connect, please feel free to reach out to me at [your email address].
+If you have any questions or want to connect, please feel free to reach out to me at mehrotrarishabh100@gmail.com .
 
 Thanks for visiting!
